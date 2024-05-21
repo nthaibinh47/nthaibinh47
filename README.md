@@ -11,7 +11,7 @@
 
 - 📫 How to reach me: **nguyenthaibinh040702@gmail.com**
 
-- ⚡ Fun fact **I think my favorite hobby is Badminton 🏸 | Eat rice with my family 👪 | Travel around the world 🌎**
+- ⚡ Fun fact **I think my favorite hobby is Badminton 🏸 | I love family 👪 | Travel around the world 🌎**
 
 <br></br>
 <br></br>
@@ -25,7 +25,7 @@
 
 - 📫 Để tiếp cận tôi thông qua Email: **nguyenthaibinh040702@gmail.com**
 
-- ⚡ Sở thích của tôi **Tôi nghĩ sở thích yêu thích của tôi là thể thao Cầu lông 🏸 | Ăn cơm sum vầy với gia đình tôi 👪 | Du lịch vòng quanh thế giới 🌎 **
+- ⚡ Sở thích của tôi **Tôi nghĩ sở thích yêu thích của tôi là thể thao Cầu lông 🏸 | Tôi yêu gia đình tôi 👪 | Du lịch vòng quanh thế giới 🌎 **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
